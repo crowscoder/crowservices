@@ -21,7 +21,7 @@
 
 - 💬 Ask me about **Bot Discord**
 
-- 📫 How to reach me **Discord : ! ム CrowS#1878**
+- 📫 How to reach me **Discord :  ム CrowS#1878**
 
 - 📄 Know about my experiences [https://discord.gg/7RsJewTPXS](https://discord.gg/7RsJewTPXS)
 
